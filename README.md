@@ -1,0 +1,1 @@
+https://krithikportfolio.netlify.app/
